@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RoshellePinnock
-- 👀 I’m interested in having a 100 acre nature reserve. 
+- 👀 I’m interested in nature, web3 and travel 
 - 🌱 I’m currently learning Blockchain 
 - 💞️ I’m looking to collaborate on Web3 Projects 
 - 📫 How to reach me: follow me on the gram @_rosh.lee
